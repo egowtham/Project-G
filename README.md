@@ -1,2 +1,2 @@
 # Project-G
-Gowtham says god will take care.
+Gowtham says god will take care everything
